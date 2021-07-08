@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **purvakharsambale2001@gmail.com**
 
-- ⚡ Fun fact **I think i am funny XD**
+- ⚡ Fun fact **I love Singing and Listening to Music.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
